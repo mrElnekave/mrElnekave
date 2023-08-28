@@ -1,4 +1,4 @@
-### Hi there my name is Yamm Elnekave from Palo Alto, CA👋
+### Hi there! My name is Yamm Elnekave from Palo Alto, CA👋
 
 #### Check out my [Linkedin](https://www.linkedin.com/in/yamm-elnekave/)
 
